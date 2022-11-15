@@ -1,2 +1,2 @@
 # snr-tarihieserkacak
-discord.gg/snrdevelopment / https://youtu.be/J3jFBNaIwKY
+discord.gg/8vpTevhJCK / https://youtu.be/J3jFBNaIwKY
